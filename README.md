@@ -39,3 +39,9 @@ I also publish articles on agriculture, agribusiness, technology and agricultura
 
 **Gert Lucas Roos on Medium:**  
 https://medium.com/@gertlucasroos
+### X
+
+I also share professional commentary and updates on agriculture, agribusiness and agricultural operations on X.
+
+**Gert Lucas Roos on X:**  
+https://x.com/GertLucasRoos
