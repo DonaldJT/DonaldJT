@@ -33,3 +33,9 @@ I regularly write about agriculture, agribusiness, technology, operational effic
 **Gert Lucas Roos — Agribusiness & Agricultural Operations**
 
 https://gertlucasroos.com
+### Articles on Medium
+
+I also publish articles on agriculture, agribusiness, technology and agricultural development on Medium.
+
+**Gert Lucas Roos on Medium:**  
+https://medium.com/@gertlucasroos
