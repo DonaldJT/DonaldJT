@@ -1,16 +1,35 @@
-## Hi there 👋
+# Gert Lucas Roos
 
-<!--
-**DonaldJT/DonaldJT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Agribusiness & Agricultural Operations Professional
 
-Here are some ideas to get you started:
+I am Gert Lucas Roos, also known as Gerlu Roos, a South African professional with experience across agriculture, agribusiness, commercial operations and project coordination.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My professional background includes agricultural operations, farm management, commodity trading, procurement, logistics, business development and the coordination of agricultural projects.
+
+## Areas of Experience
+
+- Agricultural Operations
+- Agribusiness
+- Farm Management
+- Commodity Trading
+- Procurement
+- Logistics & Supply Chains
+- Project Management
+- Business Development
+- Operational Efficiency
+
+## Professional Focus
+
+I have a particular interest in practical agriculture, efficient agricultural operations and the development of resilient agricultural businesses.
+
+My work and professional interests are centred on connecting agricultural production with sound commercial management, logistics, procurement and long-term operational thinking.
+
+## Articles & Professional Work
+
+I regularly write about agriculture, agribusiness, technology, operational efficiency and the future of agricultural businesses in South Africa and Africa.
+
+### Official Website
+
+**Gert Lucas Roos — Agribusiness & Agricultural Operations**
+
+https://gertlucasroos.com
